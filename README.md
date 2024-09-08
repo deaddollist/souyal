@@ -1,5 +1,5 @@
 
-![Screenshot 2024-09-07 204903](https://github.com/user-attachments/assets/6d817ac8-5b60-456b-b8c6-e2190fbd1106)
+![Screenshot 2024-09-08 134318](https://github.com/user-attachments/assets/ff6185d6-e398-42d1-aff2-22eb232c57f0)
 
 ![tumblr_ceeaf23ffb06ede81ddd38a760cc9fcc_79a5baa4_100](https://github.com/user-attachments/assets/50cf0f8a-7b85-4ee3-8627-2190d1a5fd0f)
 ![tumblr_ace5d3bf31258b25ad0df3b455d47e13_cbc24333_100](https://github.com/user-attachments/assets/3f0c1b16-4df6-45f4-8033-c4bfe3bcfb93)

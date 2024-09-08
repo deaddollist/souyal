@@ -11,3 +11,7 @@
 ![0125-blood](https://github.com/user-attachments/assets/b93bcac7-6816-4e07-8040-cf9d4347ef50)
 ![blinkiesCafe-S8 (1)](https://github.com/user-attachments/assets/f237eb39-c703-494d-ae02-2bfe1d3351e4)
 ![0269-sickashell](https://github.com/user-attachments/assets/86a1d680-c50b-4431-80c1-7982d0352347)
+
+![blinkiesCafe-JJ](https://github.com/user-attachments/assets/965ad92c-a00c-4c28-8976-f464f8437adc)
+![blinkiesCafe-1b](https://github.com/user-attachments/assets/2f428cec-a58c-4ede-ba9a-6ffad16c0b27)
+![blinkiesCafe-nF](https://github.com/user-attachments/assets/09f422fd-95f3-4ac6-a818-8efc8fad3056)
